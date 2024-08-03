@@ -16,7 +16,7 @@ Hello ,<br>my name is Amine Kaabi i'm 22 yo , studying in 1337 school in morocco
 [![](https://visitcount.itsvg.in/api?id=NatsuEGL&icon=0&color=0)](https://visitcount.itsvg.in)
 
   ## 💰 You can help me by Donating
-  [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/kab4644@gmail.com) 
+  [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/https://streamlabs.com/natsuuuumi/tip) 
 
   
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
