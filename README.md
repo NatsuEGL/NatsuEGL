@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello ,<br>my name is Amine Kaabi i'm 22 yo , studying in 1337 school in morocco,<br>i study software engineer i'm on my last year .
+Hello ,<br>my name is Amine Kaabi i'm 22 yo , studying in 1337 school in morocco.
 
 
 ## 🌐 Socials:
